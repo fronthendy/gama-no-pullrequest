@@ -21,3 +21,5 @@ O que estou achando do curso ?
 Muito interessante!
 
 Maneirissimo
+
+Muitas informações, mas está muito bom!!!
