@@ -21,3 +21,5 @@ O que estou achando do curso ?
 Muito interessante!
 
 Maneirissimo
+
+Incrível!! Consegui finalizar o exercício <3
