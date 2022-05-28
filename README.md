@@ -20,4 +20,4 @@ O que estou achando do curso ?
 
 Muito interessante!
 
-Maneirissimo
+Bonito de mais muiito interessante eu to amando o curso de git com a hendy
