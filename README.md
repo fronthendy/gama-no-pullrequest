@@ -20,4 +20,6 @@ O que estou achando do curso ?
 
 Muito interessante!
 
-Maneirissimo
+Maneiríssimo
+
+Estupendo!
